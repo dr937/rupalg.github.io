@@ -1,1 +1,0 @@
-# culture-buddies-case-study
